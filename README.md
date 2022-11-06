@@ -1,1 +1,1 @@
-# Tinyikor.github.io
+Please follow the link to my personal profile: https://Tinyikor.github.io/
